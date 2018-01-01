@@ -4,4 +4,4 @@ Learning something new
 
 ¡Hi humans!
 
-I just only wanna say Hi
+My name is Javier Montaño
