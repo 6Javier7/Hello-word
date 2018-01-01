@@ -4,4 +4,4 @@ Learning something new
 
 ¡Hi humans!
 
-My name is Javier Montaño
+My name is Javier Montaño Chiriboga
